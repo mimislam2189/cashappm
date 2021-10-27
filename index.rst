@@ -10,12 +10,6 @@ Cash App Money Glitch Hack Generator. Using the latest cash app hack 2021 you ca
   `CLICK HERE FREE CASH APP $750 NOW.
   <https://codegenerators.xyz/cashapp>`_
   
-   `CLICK HERE FREE CASH APP $750 NOW.
-  <https://codegenerators.xyz/cashapp>`_
-  
-   `CLICK HERE FREE CASH APP $750 NOW.
-  <https://codegenerators.xyz/cashapp>`_
-  
 
 
 Once the site opens, enter your Cash App user ID and tap “Install.” Now, you tap on “Allow” when the system asks permission to download and install the app from other sources. After the app is downloaded, go to downloads and tap on “Install.” Now, open the Cash App Earn software that you just downloaded. As soon as you open the application, it will show you that you will earn $75 after completion of each task and the money will be transferred on your Cash App once you have earned $150 or more. The app asks users to install the application and once the apps are installed and used, the user receives $150 on their Cash App in a short duration.
